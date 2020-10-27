@@ -1,2 +1,2 @@
 # victorseibert.github.io
-Feito com amor &lt;3
+Feito com amor 💙 + ☕
